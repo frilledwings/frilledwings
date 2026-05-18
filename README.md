@@ -34,7 +34,7 @@ open to dms　　⏖　　and frqs!<br><br>
 
 <details>
  <summary>　　　　　　　　　　　　　　　✚　:　　<i>SOCIALS</i></summary>
- ،،　DISCORD  :　caelin.txt <br>
+ ،،　DISCORD　:　caelin.txt <br>
  CARRD　⟢　;　sacrfcialamb.carrd.co <br>
  ،،　STRAWPAGE　:　misanthropic.straw.page <br>
  TWITTER　⟢　;　caelinium <br>

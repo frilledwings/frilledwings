@@ -23,7 +23,7 @@
  <br><br><br>
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <br><br><br>
-╋━　`　〔　c+h always open<br>
+╋━　`　〔　dms always open<br>
 very nocturnal, sometimes ia 〕<br><br>
 　our mood / behavior can vary<br>
  ノ　　based off of who's fronting<br><br><br>

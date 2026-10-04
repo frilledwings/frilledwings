@@ -17,7 +17,7 @@
 
 <br><br>
 
-<p align=center>◡　　caelin　ae aen aenself <br>
+<p align=center>◡　　rosco　hy hym hymself <br>
 　　sys . DiD <br>
   　　　 　bodily　minor　 ✦
  <br><br><br>
@@ -34,10 +34,10 @@ open to dms　　⏖　　and frqs!<br><br>
 
 <details>
  <summary>　　　　　　　　　　　　　　　✚　:　　<i>SOCIALS</i></summary>
- ،،　DISCORD　:　caelin.txt <br>
+ ،،　DISCORD　:　roscookie <br>
  CARRD　⟢　;　sacrfcialamb.carrd.co <br>
  ،،　STRAWPAGE　:　misanthropic.straw.page <br>
- TWITTER　⟢　;　caelinium <br>
+ TWITTER　⟢　;　roskawo <br>
  ،،　YOUTUBE　:　notsocaelin <br>
 </details>
 
